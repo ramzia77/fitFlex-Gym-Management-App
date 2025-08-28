@@ -2,10 +2,6 @@
 
 **“Unlock your potential with our exclusive gym membership – where fitness meets community!”**
 
-**Done by:**  
-- Arpita Roy – 220101065  
-- Suhana Safir – 220101089  
-- Sithy Ramzia – 220101039  
 
 ---
 
